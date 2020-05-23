@@ -9,4 +9,4 @@ https://www.insidesherpa.com/virtual-internships/prototype/R5iK7HMxJGBgaSbvk/JP-
 ## Course Completion Certificate:
 
 
-![]()
+![](https://github.com/TanayMayee/JPMorgan-Chase-Virtual-Experience/blob/master/JPMorgan_Chase_Virtual_Experience.png)
