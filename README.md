@@ -8,4 +8,4 @@ https://www.insidesherpa.com/virtual-internships/prototype/R5iK7HMxJGBgaSbvk/JP-
 
 ## Course Completion Certificate:
 
-![]
+
